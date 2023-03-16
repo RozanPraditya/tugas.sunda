@@ -1,0 +1,2 @@
+# tugas.sunda
+Pak dedi
